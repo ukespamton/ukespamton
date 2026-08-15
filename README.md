@@ -1,5 +1,5 @@
 <p align="left"">
-Hiii , I'm Angel Or Benny <img src="https://i.postimg.cc/W1XW1qqj/ezgif-com-effects-1.gif" width="17"> I'm 17 going on 18 .<br>BPD / ASD + inconsistent medication (iwc) <img src="https://i.postimg.cc/xJzcjwZs/pi203.gif" width="17"> <br> I'm a bit defensive but I'm working on it <br> mixed (blk/amazigh) + trilingual <img src="https://i.postimg.cc/Z0CYFzK0/y84.gif" width="17"> <b>fr/eng/arb</b>
+Hiii , I'm Angel <img src="https://i.postimg.cc/W1XW1qqj/ezgif-com-effects-1.gif" width="17"> I'm 17 going on 18 .<br>BPD / ASD + inconsistent medication (iwc) <img src="https://i.postimg.cc/xJzcjwZs/pi203.gif" width="17"> <br> I'm a bit defensive but I'm working on it <br> mixed (blk/amazigh) + trilingual <img src="https://i.postimg.cc/Z0CYFzK0/y84.gif" width="17"> <b>fr/eng/arb</b>
 </p>
 <p align="right">
   <img src="https://media.tenor.com/Xq7OXkg8y5gAAAAj/spamton-deltarune.gif">

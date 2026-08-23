@@ -1,3 +1,6 @@
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&width=435&lines=NOW'S+YOUR+CHANCE+;TO+BE+A+%5B%5BBIG+SHOT%5D%5D!" alt="Typing SVG" /></a>
+</p>
 <p align="left"">
 Hiii , I'm Angel <img src="https://i.postimg.cc/W1XW1qqj/ezgif-com-effects-1.gif" width="17"> I'm 17 going on 18 .<br>BPD / ASD + inconsistent medication (iwc) <img src="https://i.postimg.cc/xJzcjwZs/pi203.gif" width="17"> <br> I'm a bit defensive but I'm working on it <br> mixed (blk/amazigh) + trilingual <img src="https://i.postimg.cc/Z0CYFzK0/y84.gif" width="17"> <b>fr/eng/arb</b>
 </p>

@@ -29,7 +29,7 @@
 </table>
 <p align="center">
 <img src="https://i.pinimg.com/1200x/c2/0c/88/c20c88ac1fc92ec354492ae500494715.jpg" width="400">
-    <img src="https://media.discordapp.net/attachments/1551702634434658428/1555498414802735115/xWo7qAAAABklEQVQDAMpzlLVXA7sYAAAAAElFTkSuQmCC.png?backend=b2&ex=6ac0be49&is=6abf6cc9&hm=1769b4a3b92220a23c04ddfef47cc2153b83f21eeb0574f103a3967996ae6037&=&format=webp&quality=lossless" width="150">
+    <img src="https://files.catbox.moe/8pyz3l.png" width="150">
 </p>
         <table align="center">
           <tr>
@@ -72,9 +72,9 @@
          </tr>
         </table> 
         <p align="center">    
-          <img src="https://media.discordapp.net/attachments/1551702634434658428/1555513692185952276/1Q9wE8AAAAGSURBVAMAqDnur5OT5IAAAAAASUVORK5CYII.png?backend=b2&ex=6ac0cc84&is=6abf7b04&hm=69621adc139dfebd6bb5a8b7c55d87d9b3af16b43b99edd55b17a38ce750c901&=&format=webp&quality=lossless" width="150">
+          <img src="https://files.catbox.moe/edkdvw.png" width="150">
         <img src="https://i.pinimg.com/736x/16/60/fd/1660fdc42339f5b2b983052b2bd3223b.jpg" width="400">
         </p>
         <p align="center">
-          <img src="https://media.discordapp.net/attachments/1551702634434658428/1555514360925921300/SGAAAAAZJREFUAwB42vUNj406vgAAAABJRU5ErkJggg.png?backend=b2&ex=6ac0cd23&is=6abf7ba3&hm=37fbd1f164c9427ab1a2f220a5bccbeaf9ddc8b38a64982a3ccd95fef355165d&=&format=webp&quality=lossless">
+          <img src="https://files.catbox.moe/atgf9u.png">
         </p>
